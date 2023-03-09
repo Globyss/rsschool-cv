@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Globyss.github.io/rsschool-cv/
